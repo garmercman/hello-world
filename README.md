@@ -1,2 +1,5 @@
 # hello-world
-a practice place
+## A practice place
+  I am a superannuated person looking for my next, and possibly first, hit. I find that if I spend my waking hours in pursuit of obscure and arcane knowledge my mind is free of the immobilizing fear of my fast approaching demise. I am working on a plan to deal with the three AM terrors that somehow are always a suprise and yet I know they will come tonight as that have come every other night for as long as I can remember. (And that would be for about a week.)
+  
+  I've tried drinking. It doesn't help. But the technique I am working on now does show some promiss. I just stop thinking. That calms me right now. Here's how it works: It's 3 AM and I awake with a start. Thoughts of doom, death and destruction rage in my head. The cold mental taste of fear is in my mouth and panic seizes my core. For a few moments all appears to be lost, but then the magic begins. It starts as a conversation with myself. I ask myself, "What's changed? Usually I can't think of anything that's changed since I went to bed, after all I just wode up and it is hard to put yourself together at that point, so I move on to the next question, "What's real?" I don't know the answer to that either but that always stops me. If I don't know what real why am I have the terrors over it?
